@@ -1,2 +1,2 @@
-# 🔹 GLMRTalk
-Discussion Platform on MOONBEAM ($GLMR) Blockchain 🗣
+# 🔸 BSCTalk
+Discussion Platform on BINANCE SMART CHAIN ($BNB) Blockchain 🗣
