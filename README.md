@@ -2,7 +2,7 @@
 Discussion Platform on BINANCE SMART CHAIN ($BNB) Blockchain 🗣
 
 
-Coming soon... 🤫
+Coming soon... 🤫🤫🤫
 
 🌐: www.bsctalk.xyz
 
